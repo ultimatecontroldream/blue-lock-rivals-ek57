@@ -1,4 +1,4 @@
-#  
+#  blue lock rivals secret Scripts is the best blue lock rivals Script, featuring no cooldown and private server access. Safe and powerful for all your
 
 
 
